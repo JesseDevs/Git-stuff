@@ -8,9 +8,9 @@ Currently dedicated to my mentorship with [Perpetual Education](https://perpetua
 
 When I'm not behind a screen you could find me playing the latest fighting game, making some music, or at the gym. 
 
-* [Blog](https://jessedevs.substack.com/).
-* [Twitter](https://twitter.com/jesse_Devs).
-* [LinkedIn](https://www.linkedin.com/in/felix-jesser1223/)
+- [Blog](https://jessedevs.substack.com/).
+- [Twitter](https://twitter.com/jesse_Devs).
+- [LinkedIn](https://www.linkedin.com/in/felix-jesser1223/).
 
 
-Let's connect if you want to chat more. 🤟🏼
+##Let's connect if you want to chat more. 🤟🏼
